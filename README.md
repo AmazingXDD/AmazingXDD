@@ -1,5 +1,9 @@
 ### Hi there 👋
-
+### I'm from scratch!
+### And I Work On Cringe (or not cringe) project xD
+### also i  Have Changed My Profile Picture!
+### Go To My Scratch Profile ---> https://scratch.mit.edu/users/AmazingXDD/
+### Fun fact: Im smart xD
 <!--
 **AmazingXDD/AmazingXDD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
